@@ -1,4 +1,4 @@
-# My Art Journey
+# ‧͙⁺˚*･༓☾ My Art Journey ☽༓･*˚⁺‧͙
 
 ## The Beginning
 
