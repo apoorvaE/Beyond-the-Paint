@@ -3,7 +3,7 @@
 
   The magestic sweep of the final brush stroke, pressed into a stunning shade of cadmium blue paint. Perfect! It usually takes me as well as many other artists, a multitude of hours to finally reach this stage in their art. Drawing and even crafts was a part of my life for more than ten years and I could not have imagined how it would have been if I was never given the abiliy to express myself in such a creative way. My mother told me that the first drawing I ever did, was scribbling all over our brand new television. I know, I know, not a smart decision. But, that is when it all began and it is a moment that I will hold dear to my heart. It unlocked a pathway in my future years for me to make so many pieces of so many genres. These included, painting, drawing, crafts, pottery, embroidery, and hopefully many more to in the next coming years.
 
-<img src="https://www.cowlingandwilcox.com/blog/wp-content/uploads/2019/06/bigstock-Artist-Brush-Mixed-Color-Oil-P-263253853-1024x684.jpg" alt="Mixing Oil Paints: Everything You Need To Know | Cowling &amp;amp; Wilcox Blog"/>![image]
+<img src="https://www.cowlingandwilcox.com/blog/wp-content/uploads/2019/06/bigstock-Artist-Brush-Mixed-Color-Oil-P-263253853-1024x684.jpg" alt="Mixing Oil Paints: Everything You Need To Know | Cowling &amp;amp; Wilcox Blog"/>!
 
 ## The Struggle of Art Block
 
