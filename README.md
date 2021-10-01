@@ -1,4 +1,4 @@
-**My Art Journey**
+#**My Art Journey**
 
 ## The Beginning
 
@@ -10,7 +10,7 @@
 
   Art Block. When you have absolutely no creativity, interest, or motivation for a piece. This often occurs in the beginning stage of first making your work. Individuals usually spend searching for the perfect picture to feature or thinking of the exact image they desire to create, and by the end of those hours, all the creativity they had left in them is gone. I often struggle with this because I want to start on a piece, but i often do not know where to start and new ideas just do not come to me at the time. But I usually conquer this by taking a break from the art I was working on and taking a bit of a "break" time. By decreasing the pressure I had put on myself, I automatically start creating the new goals and ideas that I want to include. That tip might help some people but I still acknowledge that a few others would still struggle with this despite taking a break. A quick episode never hurt anyone! **YOU CAN DO IT!**
 
-<img src="https://pics.me.me/thumb_i-wanna-make-art-but-i-dont-knouw-how-to-43934888.png" alt="25+ Best Owlturd Memes | Comics Memes, Shen Memes"/>![image](https://user-images.githubusercontent.com/91564008/135602942-fde3be8c-bb9b-4d2b-af2e-f23808b26721.png)
+<img src="https://pics.me.me/thumb_i-wanna-make-art-but-i-dont-knouw-how-to-43934888.png" alt="25+ Best Owlturd Memes | Comics Memes, Shen Memes"/>!
 
   One of my favorite artists is, _kelogsloops_ and his art style is truly gorgeous. I often try to look on his youtube channel for inspiration and it usually works. These include things such as, helping me find nice color combinations or even to just feel inspired to begin my next piece. 
 
